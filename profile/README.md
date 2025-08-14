@@ -4,7 +4,7 @@ If you're upgrading your cleaning game, **Dreame’s advanced vacuums and mop sy
 
 ---
 
-## 🎟️ Today's Best Working Dreame Promo Codes (Updated June 2025)
+## 🎟️ Today's Best Working Dreame Promo Codes (Updated August 2025)
 
 Below is a curated list of the **latest, tested promo codes for Dreame** — categorized by model type and discount value:
 
@@ -46,7 +46,7 @@ Using a Dreame promo code is simple. Just follow these steps:
 ## ⭐ Best Dreame Models to Use Coupons On
 
 ### 🔹 **Dreame L10s Ultra Gen 2** — Save $440  
-With self-cleaning mop heads, AI-powered navigation, and auto-emptying dock, this flagship model is best-in-class.  
+With self-cleaning mop heads, AI-powered navigation, and an auto-emptying dock, this flagship model is best-in-class.  
 👉 Use code: `FDL10SUG`
 
 ### 🔹 **Dreame H15 Pro** — Save $270  
